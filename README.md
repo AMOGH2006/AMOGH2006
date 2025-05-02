@@ -1,6 +1,6 @@
 - 👋 Hi, I’m AMOGH Pandey
 - 👀 I’m interested in ... Coding,Gaming, or any other cool stuff
-- 🌱 I’m currently learning ... python, c
+- 🌱 I’m currently learning ... C,JS
 - 💞️ I’m looking to collaborate on ... Nothing rn
 - 📫 How to reach me ... dont reach me imma little shy , still here is  my Instagram @username_still.loading
 - 😄 Pronouns: ...He/Him
